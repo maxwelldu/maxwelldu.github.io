@@ -18,5 +18,5 @@ title: Maxwelldu's Blog
 
 <p><br /><b>Contact Information:</b></p>
 <blockquote>
-欢迎所有朋友加我微信：happypeter1983
+欢迎所有朋友加我微信：dcj1413161683
 </blockquote>
